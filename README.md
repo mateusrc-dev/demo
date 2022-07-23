@@ -6,3 +6,4 @@
 2. I know about you girl, right
 3. I like read about filosofy
 4. I like meditation, reading, psicology and filosofy
+5. I am not confused
